@@ -8,3 +8,4 @@ Soy una persona que me gusta trabajar en equipo, tener buena comunicacion con la
  IDIOMAS: español nativo, portugues medio.
  
 " *LA BASE DE LA SOCIEDAD ES LA FAMILIA".*.❤❤
+ 
